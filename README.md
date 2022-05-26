@@ -1,6 +1,6 @@
 ## 👋 Hello, I'm Hyzer
 
-![Banner](https://telegra.ph/file/fef1702cf00c1851b7a17.mp4) <br />
+![Banner](https://telegra.ph/file/c7441fec870efd645b118.jpg) <br />
 [<img src="https://img.shields.io/badge/instagram-%23E4405F.svg?&style=for-the-badge&logo=instagram&logoColor=white">](https://instagram.com/zexyds_)
 
 ### ℹ &nbsp;Personal Stuffs
